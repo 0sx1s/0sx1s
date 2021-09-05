@@ -4,4 +4,4 @@
 
 → Building, Zero One Zero.
 
-→ [010](https://twitter.com/010engine) // [Site](https//lyfe.fyi)
+→ Yet to be discovered.
