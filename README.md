@@ -4,4 +4,4 @@
 
 → Following My Curiosity of the Digital World.
 
-→ Building, Zero One Zero [More](https://twitter.com/010engine)
+→ Building, Zero One Zero // [More](https://twitter.com/010engine)
