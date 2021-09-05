@@ -2,8 +2,6 @@
 
 → Typing 0s and 1s is what I do.
 
-→ Following My Curiosity of Digital World.
+→ Following My Curiosity of the Digital World.
 
-→ Building, Zero One Zero [Link](https://twitter.com/010engine)
-
-→ More Info About Me [Link](https://lyfe.fyi)
+→ Building, Zero One Zero [More](https://twitter.com/010engine)
