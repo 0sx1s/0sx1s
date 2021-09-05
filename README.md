@@ -4,4 +4,4 @@
 
 → Building, Zero One Zero.
 
-→ [More](https://twitter.com/010engine) // [Site](https//lyfe.fyi)
+→ [010](https://twitter.com/010engine) // [Site](https//lyfe.fyi)
