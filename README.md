@@ -1,19 +1,19 @@
 • Oh, Hi! I'm lyfe[/](https://0n1.life)
-→ I'm many things yet nothing. Multidisciplinary Programmer & Designer, Minimalist and more(+)
+→ i'm many things yet nothing. multidisciplinary programmer & designer, minimalist and more(+)
 
 
 • Typing 0s and 1s[/](https://010.software)
-→ Zero One Zero (0s1s0s) is an experience to know, learn and understand.
-  Insprised by Archillect from Pak. 
+→ zero one zero (0s1s0s) is an experience to know, learn and understand.
+  insprised by archillect from pak. 
 
 
 • Building, UNKWN[/](https://kwn.bar)
-→ A studio that ONLY makes dope shit. Driven by Curiosity.
+→ a studio that ONLY makes dope shit. driven by curiosity.
 
 
 • Art, MN-ML.[/](https://instagram.com/mndashml)
-→ Monochrome, Minimal, Art (photography). Fun Project.
+→ monochrome, minimal, art (photography). fun project.
 
 
 • Yet to be discovered.[/](https://twitter.com/0sx1s)
-→ Have I Done Enough to be Discovered? perhaps, but it's never enough.
+→ have i done enough to be discovered? perhaps, but it's never enough.
