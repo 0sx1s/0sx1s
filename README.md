@@ -1,7 +1,15 @@
-→ Hello, world! I'm Lyfe[.](https://lyfe.fyi)
+• Oh, Hi! I'm lyfe[/](https://0n1.life)
+→ I'm many things yet nothing. Multidisciplinary Programmer & Designer, Minimalist and more(+)
 
-→ Typing 0s and 1s is what I do[.](https://010.software)
+• Typing 0s and 1s[/](https://010.software)
+→ Zero One Zero (0s1s0s) is an experience to know, learn and better help our future.
+  Project is insprised by archillect from Pak. 
 
-→ Building, Zero One Zero[.](https://twitter.com/010engine)
+• Building, UNKWN[/](https://kwn.bar)
+→ A studio that ONLY makes dope shit. Driven by Curiosity.
 
-→ Yet to be discovered[.](https://twitter.com/0sx1s)
+• Art, MN-ML.[/](https://instagram.com/mndashml)
+→ Monochrome, Minimal, Art (photography). Fun Project.
+
+• Yet to be discovered.[/](https://twitter.com/0sx1s)
+→ Have I Done Enough to be Discovered? perhaps, but it's never enough.
