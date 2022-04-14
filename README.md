@@ -2,8 +2,8 @@
 → I'm many things yet nothing. Multidisciplinary Programmer & Designer, Minimalist and more(+)
 
 • Typing 0s and 1s[/](https://010.software)
-→ Zero One Zero (0s1s0s) is an experience to know, learn and better help our future.
-  Project is insprised by archillect from Pak. 
+→ Zero One Zero (0s1s0s) is an experience to know, learn and understand.
+  Insprised by archillect from Pak. 
 
 • Building, UNKWN[/](https://kwn.bar)
 → A studio that ONLY makes dope shit. Driven by Curiosity.
